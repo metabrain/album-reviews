@@ -1,7 +1,5 @@
 # album-reviews
 
-## Reviews
-
 ## TODO
 
 - Apex + Demons of the AstroWaste
@@ -21,3 +19,12 @@
 - One-X
 - JDilla - The Shinning
 - Discovery
+
+
+## Reviews
+
+### Elect The Dead - Serj Tankian
+
+As good as it was back in 2007 - which is great. Not really SOAD, but very close in themes and pacing on some songs. Not sure if it is just because I listen to it a lot more when I was younger, but I still remember pretty much the lyrics to all the major singles in theis album. From Honking Antelope, Praise the Lord and Pass the Ammunition to Beethoven's Cunt and Unthinking Majority , all lyrics are unique in a very Serj way which I like a lot.
+
+7/10
