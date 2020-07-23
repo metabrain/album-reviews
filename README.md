@@ -15,7 +15,6 @@
 - Peace of Mind
 - Ecliptica
 - And Justice for All
-- Elect the Dead
 - One-X
 - JDilla - The Shinning
 - Discovery
